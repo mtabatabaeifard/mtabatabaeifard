@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Seyyed Mohammad Hossein Tabatabaei Fard
-- 👀 I’m interested in JavaScript & Python in programming & Microsoft , Mikrotik & Cisco Networks.
+- 👀 I’m interested in JavaScript & Python in programming & Microsoft , Mikrotik , Cisco & Wireless Networks.
 - 📫 How to reach me :
 - Web Site: [mtabatabaeifard.ir](https://mtabatabaeifard.ir)
 - YouTube: [https://youtube.com/channel/UClb2M0vRDsz8E_tn-EbkhFA](https://youtube.com/channel/UClb2M0vRDsz8E_tn-EbkhFA)
