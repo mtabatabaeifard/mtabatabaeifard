@@ -5,6 +5,7 @@
 - YouTube: [https://youtube.com/channel/UClb2M0vRDsz8E_tn-EbkhFA](https://youtube.com/channel/UClb2M0vRDsz8E_tn-EbkhFA)
 - Instagram: [https://instagram.com/mohammadhossein.tabatabaei](https://instagram.com/mohammadhossein.tabatabaei)
 - LinkedIn: [https://www.linkedin.com/in/mohammad-hossein-tabatabaei-fard-9835201b3](https://www.linkedin.com/in/mohammad-hossein-tabatabaei-fard-9835201b3)
+- Google Scholar : [https://scholar.google.com/citations?hl=en&user=N-6jokAAAAAJ](https://scholar.google.com/citations?hl=en&user=N-6jokAAAAAJ)
 - Twitter: [https://twitter.com/tabatabaeifard](https://twitter.com/tabatabaeifard)
 
 <!---
